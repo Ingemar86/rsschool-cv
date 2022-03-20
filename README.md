@@ -1,1 +1,1 @@
-https://Ingemar86.github.io/rsschool-cv/cv
+https://Ingemar86.github.io/rsschool-cv/
